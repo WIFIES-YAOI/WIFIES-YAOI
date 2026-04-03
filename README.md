@@ -1,3 +1,3 @@
 <div align="center">
-$\color{Green}{\textsf{test}}$
+$\color{#4a8c9e}{\textsf{Normal, colored text}}$
 </div>

@@ -1,3 +1,3 @@
 <div align="center">
-$\color{#4a8c9e}{\textsf{Normal, colored text}}$
+i forgot how to color text im crashing the fawk out
 </div>

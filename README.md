@@ -2,4 +2,4 @@
 ---
 <p> $\color{#55c0ed}{\textsf{syc / stink . id/en}}$ </p>
 <p> $\color{#f2f9fc}{\textsf{currently into ninjago, can be found in the twst or sonic area!}}$ </p>
-![](https://images-ext-1.discordapp.net/external/-vp9dOUwQzBAizvjkoqAuI544O1dUQTRpXB1lNDUZzM/https/i.postimg.cc/DZ8H2Bsq/Untitled1381-20260403220108.png?format=webp&quality=lossless&width=1360&height=1360)
+![](https://i.postimg.cc/DZ8H2Bsq/Untitled1381-20260403220108.png)

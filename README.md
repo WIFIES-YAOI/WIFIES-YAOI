@@ -1,3 +1,3 @@
-gonna redo this buh
-im very multifandom and rn im usually in twst or sonic
-my current hyperfixation is ninjago okay bye
+<div align="center">
+$\color{#4a8c9e}{\textsf{this is a test!}}$
+</div>

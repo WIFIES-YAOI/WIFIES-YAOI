@@ -1,4 +1,4 @@
-<p align="center"> <img width="435" height="50" alt="image" src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=11&pause=1000&center=true&width=435&lines=%60+I+was+built+to+protect+those+who+cannot+protect+themselves.+%22" /> </p>
+<p align="center"> <img width="435" height="50" alt="image" src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&pause=1000&color=93D2E6&center=true&width=435&lines=%60+I+was+built+to+protect+those+who+cannot+protect+themselves.+%22" /> </p>
 
 ---
 

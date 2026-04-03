@@ -1,3 +1,3 @@
 <div align="center">
-i forgot how to color text im crashing the fawk out
+$${\color{red}Welcome} \space {\color{lightblue}To } \space {\color{lightgreen}Github}$$
 </div>

@@ -1,3 +1,1 @@
-<div align="center">
-$${\color{red}Welcome} \space {\color{lightblue}To } \space {\color{lightgreen}Github}$$
-</div>
+$\color{#4a8c9e}{\textsf{test}}$

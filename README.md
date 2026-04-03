@@ -3,4 +3,4 @@
 <p>$\color{#55c0ed}{\textsf{syc / stink . id/en}}$ </p>
 <p>$\color{#f2f9fc}{\textsf{currently into ninjago, can be found in the twst or sonic area!}}$ </p>
 <p> for some reason i can't center shit so this is what u get my bad chat </p>
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="360" height="360" alt="image" src="https://github.com/user-attachments/assets/21e2bdc1-8b7e-4683-b551-acead7429ac1" />
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ<img width="360" height="360" alt="image" src="https://github.com/user-attachments/assets/21e2bdc1-8b7e-4683-b551-acead7429ac1" />

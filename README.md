@@ -2,3 +2,4 @@
 ---
 <p> $\color{#55c0ed}{\textsf{syc / stink . id/en}}$ </p>
 <p> $\color{#f2f9fc}{\textsf{currently into ninjago, can be found in the twst or sonic area!}}$ </p>
+[![Untitled1381-20260403220108.png](https://i.postimg.cc/DZ8H2Bsq/Untitled1381-20260403220108.png)](https://postimg.cc/bDf3g0mJ)

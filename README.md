@@ -4,7 +4,7 @@
 ---
 
 <p align="center"> $\color{#55c0ed}{\textsf{syc / stink . id/en}}$ </p>
-<p align="center"> $\color{#f2f9fc}{\textsf{multifandom . currently into ninjago & sfawtde and found in the twst and sonic area}}$ </p>
+<p align="center"> $\color{#f2f9fc}{\textsf{multifandom . currently into ninjago and sfawtde and found in the twst and sonic area}}$ </p>
 <p align="center"> $\color{#75432a}{\textsf{touch comfort, c+h freely ! but no flirting eepsla}}$ </p>
 <p align="center"> $\color{#f2f9fc}{\textsf{heavy multishipper... ohh glaciershipping and rielle x azul drools... kalim x azul number 1 shipper too btw}}$ </p>
 <p align="center"> <img width="360" height="360" alt="image" src="https://github.com/user-attachments/assets/21e2bdc1-8b7e-4683-b551-acead7429ac1" /> </p>

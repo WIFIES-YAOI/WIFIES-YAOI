@@ -4,8 +4,8 @@
 ---
 
 <p align="center"> $\color{#55c0ed}{\textsf{syc / stink . id/en}}$ </p>
-<p align="center"> $\color{#f2f9fc}{\textsf{multifandom . currently into ninjago, sfawtde, and unstable. found in the twst and sonic area most of the time,}}$ </p>
-<p align="center"> $\color{#f2f9fc}{\textsf{otherwise wandering.}}$ </p>
+<p align="center"> $\color{#f2f9fc}{\textsf{multifandom . currently into ninjago, sfawtde, and lifesteal. found in the twst and}}$ </p>
+<p align="center"> $\color{#f2f9fc}{\textsf{sonic area most of the time, otherwise wandering.}}$ </p>
 <p align="center"> $\color{#75432a}{\textsf{touch comfort, c+h freely ! but no flirting eepsla}}$ </p>
 <p align="center"> $\color{#f2f9fc}{\textsf{heavy multishipper... ohh glaciershipping and rielle x azul drools... kalim x azul number 1 shipper too btw}}$ </p>
 <p align="center"> $\color{#4d838f}{\textsf{biggest!! disclaimer!! i do not typically talk in public chat often nor do i go out to interact with people i am an afk}}$ </p>
